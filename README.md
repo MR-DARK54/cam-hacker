@@ -20,3 +20,12 @@ ls
 
 bash wishfish.sh
 
+
+
+
+my name is  MR-DARK i HACKER 
+
+telegram https://t.me/name_dark
+
+Instagram  https://instagram.com/name__dark?igshid=YmMyMTA2M2Y=
+tik tok tiktok.com/@name_dark0
